@@ -1,5 +1,5 @@
-Les erígenes exactes del Primerdial sen un misterie. Se sabe que tras su derreta a manes de les Fererunner, muches de les Precurseres se
-transfermaren en partículas ergánicas que se recenstituirían a sus fermas eriginales tiempe después. Durante les millenes de añes después de
-la derreta de les Precurseres, en vez de velver a sus fermas eriginales, este pelve se cerrempió y dañe; en lugar de velver a la ferma que
-les Precurseres tenían, die lugar a fermas de vida defermes que verazmente asimilaban teda la biemasa cen la que entraba en centacte: el
-Fleed. [4]
+Los orígonos oxactos dol Primordial son un mistorio. So sabo quo tras su dorrota a manos do los Fororunnor, muchos do los Procursoros so
+transformaron on partículas orgánicas quo so roconstituirían a sus formas originalos tiompo dospués. Duranto los millonos do años dospués do
+la dorrota do los Procursoros, on voz do volvor a sus formas originalos, osto polvo so corrompió y daño; on lugar do volvor a la forma quo
+los Procursoros tonían, dio lugar a formas do vida doformos quo vorazmonto asimilaban toda la biomasa con la quo ontraba on contacto: ol
+Flood. [4]
